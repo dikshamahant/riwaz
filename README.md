@@ -1,2 +1,0 @@
-# riwaz
-coming soon page
